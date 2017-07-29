@@ -34,3 +34,13 @@ Qualifications
 * Must be able to work weekends, holidays, and special events as necessary
 * General knowledge of information technology and business software applications; must be highly proficient using Microsoft Office Suite
 * Effective and persuasive communications skills; able to write and speak clearly and present information to a wide variety of internal and external stakeholders
+
+https://www.linkedin.com/in/lauren-girard-b9936b37/  
+
+http://blogs.getty.edu/iris/open-content-an-idea-whose-time-has-come/
+
+http://www.scpr.org/programs/the-frame/2015/09/16/44498/how-the-broad-trains-its-staff-may-change-your-exp/
+
+https://www.thebroad.org/employment/visitor-services-associate
+
+

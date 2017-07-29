@@ -40,7 +40,7 @@ https://www.linkedin.com/in/lauren-girard-b9936b37/
 http://blogs.getty.edu/iris/open-content-an-idea-whose-time-has-come/
 
 http://www.scpr.org/programs/the-frame/2015/09/16/44498/how-the-broad-trains-its-staff-may-change-your-exp/
-
+  
 https://www.thebroad.org/employment/visitor-services-associate
 
 
